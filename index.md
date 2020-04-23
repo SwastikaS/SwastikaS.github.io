@@ -2,7 +2,6 @@
 
 So I just completed my final year of high school and now I don’t know what to do next?
 
-A confused future
 My result was supposed to come at the end of May but due to this pandemic situation outside, I can expect it until the end of July. When my finals were approaching to an end, I already had a plan in my mind about the course that I’ll choose for my further studies. But now as there is a lot of time in hand I exposed myself to many future options due to which I am stuck now. So before I tell you all the possibilities of the future, let me talk a little about my past.
 
 When I was very young, I looked up to my mom as a role model, who’s a teacher. She taught at the same school where I studied. So I was impressed by how she has control of 100 students at the same time. And the epic thing was that children would listen to her. But later that point of view of mine changed. Due to two reasons. One because I read it somewhere that the future of education is digital. Another reason is that I got a new aim.
