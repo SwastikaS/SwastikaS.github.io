@@ -1,4 +1,4 @@
-# I dont know what to do next.
+# Dear Future, I'm not ready.
 So I just completed my final year of high school and now I don't know what to do next?
 
 My result was supposed to come at the end of May but due to this pandemic situation outside, I can expect it until the end of July. When my finals were approaching to an end, I already had a plan in my mind about the course that I'll choose for my further studies. But now as there is a lot of time in hand I exposed myself to many future options due to which I am stuck now. So before I tell you all the possibilities of the future, let me talk a little about my past.
